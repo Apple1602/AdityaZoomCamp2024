@@ -1,1 +1,1 @@
-# AdityaZoomCamp2024
+# AdityaZoomCamp2025
